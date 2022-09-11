@@ -1,1 +1,0 @@
-# A-study-of-who-s-an-idiot
